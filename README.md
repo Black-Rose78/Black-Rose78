@@ -1,4 +1,5 @@
-![Header Image]((https://media1.tenor.com/images/6cb6d883c9c63a6f28c6a621aefaa62d/tenor.gif?itemid=14824039)
+
+![tenor](https://github.com/Black-Rose78/Black-Rose78/assets/169848829/620d2cd1-8e4f-4e67-8a5e-9441d3002383)
 
 # Hi there, I'm Black Rose 👋
 
